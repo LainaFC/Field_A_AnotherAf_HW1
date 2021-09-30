@@ -7,5 +7,4 @@
 ## Our favourite season is fall because the colours are very photogenic! 
 
 ## Our prices vary from $40-$150. 
-
-## 
+We are a company based out of Lucan Ontario that specializes in weddings, funerals, and engagments.
