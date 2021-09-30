@@ -1,10 +1,5 @@
 # Flower Girl, Floral Design INC.
 
-## We are a company based out of Lucan Ontario that specializes in weddings, funerals, and engagments.
+## What is Flower Girl Floral Design INC.?
 
-## Make sure to check out our shop at 645 Main Street Lucan, ON
-
-## Our favourite season is fall because the colours are very photogenic! 
-
-## Our prices vary from $40-$150. 
-We are a company based out of Lucan Ontario that specializes in weddings, funerals, and engagments.
+It is a fictional flower business that is placed in Lucan and is owned by myself and my boyfriend. In the bio we provide our real instagram page because we do actually make woodworking things. 
